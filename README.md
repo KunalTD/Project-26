@@ -1,0 +1,1 @@
+Per Serving: 376 calories; protein 9.7g; carbohydrates 35.8g; fat 23.3g; cholesterol 60.5mg; sodium 192.7mg.
